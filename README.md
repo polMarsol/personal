@@ -1,4 +1,4 @@
-# tonteria_pol
+# soc un friki jaja, faig informatica jeje
 <html>
 <head>
 <title>
